@@ -4,6 +4,8 @@
 
 **Tunnel Rush 2** is the **ultimate high-speed arcade runner** that takes your reflexes to the limit. Featuring a **vibrant neon tunnel**, **extreme visual effects**, and **nonstop obstacle dodging**, this game delivers **insane adrenaline** with every twist and turn.
 
+## <a href="https://1kb.link/a4To6Y">👉 Play Tunnel Rush 2 Unblocked Games NOW 👈</a>
+
 Whether you're a fan of **hyper-casual runners** or intense **reaction-based games**, Tunnel Rush 2 is designed to challenge even the most fearless players.
 
 ---
